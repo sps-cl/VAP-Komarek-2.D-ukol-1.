@@ -1,0 +1,1 @@
+# VAP-Komarek-2.D-ukol-1.
